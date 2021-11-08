@@ -5,6 +5,8 @@ carreame padre
 
 Te va a carrear quien yo te diga 
 
-PAYPAl -> 5€
+PAYPAl -> 10€
 
-Yo lo veo. Facilito el duoQ
+Yo lo veo. Facilito el duoQ.
+
+Si pero ya me diras cuando para que acordemos horarios
