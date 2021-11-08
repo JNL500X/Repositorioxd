@@ -1,1 +1,1 @@
-Ahora hablando en serio, si quieres ya hablaremos al respecto cuando empieza la season y estas cosas
+va. se sabe ya cuando empieza la nueva? será sobre enero no?
